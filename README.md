@@ -1,0 +1,2 @@
+# myshowe
+pierwsze kroki
